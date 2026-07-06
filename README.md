@@ -1,4 +1,4 @@
-# Salut, moi c'est Bassma 👋
+# Salut, c'est Bassma Chemaou El Fihri 
 
 🎓 Étudiante en 4ème année Ingénieur Informatique et Réseaux, filière **Intelligence Artificielle et Sciences des Données** à l'EMSI, Rabat.
 
